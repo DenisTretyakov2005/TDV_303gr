@@ -11,3 +11,13 @@
 Что кинул он в краю родном?
 
 <img src = "https://gas-kvas.com/uploads/posts/2023-01/1673558812_gas-kvas-com-p-beleet-parus-odinokii-risunok-detskii-39.jpg">
+
+Играют волны, ветер свищет
+
+И мачта гнется и скрипит
+
+Увы, он счастия не ищет
+
+И не от счастия бежит
+
+## М.Лермонтов
